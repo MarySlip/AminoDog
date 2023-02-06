@@ -1,0 +1,1 @@
+# AminoDog no adaptive
